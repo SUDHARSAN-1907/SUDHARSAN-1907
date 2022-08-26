@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @SUDHARSAN
 - 👀 I’m interested in programming
-- 🌱 I’m currently learning Engineering
+- 🌱 I’m currently improving my skills
 - 📫 How to reach me LinkedIn- https://www.linkedin.com/in/sudharsan-n-v-214b10197 or instagram-@sudharsan_19_07_02
 
 <!---
